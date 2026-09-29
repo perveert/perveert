@@ -1,1 +1,1 @@
-⠀ ⠀ ⠀     <p align="center">[❏](https://perverted.atabook.org)
+⠀ ⠀ ⠀     <p align="center">[ata](https://perverted.atabook.org)
